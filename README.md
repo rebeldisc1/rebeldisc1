@@ -12,4 +12,4 @@ Twitter:
 [Twitter](https://www.twiter.com/rebeldisc)
 
 TikTok:
-[TikTok](https://www.tiktok.com/noahssoftware)
+[TikTok](https://www.tiktok.com/@noahssoftware)
